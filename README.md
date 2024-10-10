@@ -1,3 +1,3 @@
 # gender
 
-it/they kitten thing
+she/they girlthing girlfailure
